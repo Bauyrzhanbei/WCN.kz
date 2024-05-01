@@ -1,0 +1,2 @@
+# WCN.kz
+DIPLOM
